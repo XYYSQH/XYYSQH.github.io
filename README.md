@@ -1,2 +1,2 @@
-# XYYSQH.github.io
+# 欢迎
 记录美好
